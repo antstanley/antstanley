@@ -1,3 +1,3 @@
-On the internet, nobody knows you're a hooman...
-
 ![Cartoon with two dogs, with one saying to the other On the internet, nobody knows you're a dog](Internet_dog.jpg)
+
+"On the internet, nobody knows you're a hooman."
